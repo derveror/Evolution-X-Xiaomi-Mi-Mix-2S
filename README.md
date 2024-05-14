@@ -1,2 +1,2 @@
-# Evolution-X-Xiaomi-Mi-Mix-2S
+# Evolution X Xiaomi Mi Mix 2S
 place here information
